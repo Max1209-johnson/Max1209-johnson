@@ -20,11 +20,13 @@ Feel free to reach out if you need aby placement preparation tips, interview tip
 🔗 Contact Me
 
 LinkedIn: linkedin.com/in/maxjohnson-1209/
+
 Email: maxjohnson1209@gmail.com
 
 💬 Ask me about ...
 
 Placements Preparations and many more tips...
+
 📄 Explore My Repositories
 Check out my repositories below to see my work and projects in Business Analytics,and more. I'm excited to showcase my journey in analytics and contribute to the community!
 
