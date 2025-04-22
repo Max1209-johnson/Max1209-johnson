@@ -2,7 +2,7 @@
 🎓 About Me
 
 
-Hello! I'm Max Johnson, associate conultant at Oracle. I'm deeply interested in the realms of Business and Marketing Analytics, and I'm on the lookout for opportunities to apply my skills in these fields.
+Hello! I'm Max Johnson, Presales conultant at Oracle. I'm deeply interested in the realms of Business and Marketing Analytics, and I'm on the lookout for opportunities to apply my skills in these fields.
 
 🔍 My Interests
 
